@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **anubhavsharma0207@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1um-3XFrxKLmcMcwegun53fzDLjhNIn-d/view?usp=drive_link](https://drive.google.com/file/d/1Crtrzf2yHijbuy7esAU2Pcy4B0-HzSED/view?usp=sharing)
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/14xjyr4X1qdRleSHw6FkSgYuEvhOYrmsc/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
